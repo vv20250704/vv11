@@ -11,6 +11,6 @@
 优化“日本AV免费”关键词时，必须确保内容合法合规，遵循平台规定。关键词自然融入内容，避免堆砌。原创、高质量的内容能吸引用户并提升排名，同时提升网站加载速度和用户体验。
 通过获取外部链接和社交传播提高曝光度。最重要的是，创作时要遵循道德规范，避免发布不当内容，确保网站长期稳定运营。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250704/vv11 ）</span>
 
 
